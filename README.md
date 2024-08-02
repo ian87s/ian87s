@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software
 - 🌱 I’m currently works as accounting but i'm so prefer about IT especially the software  
 - 📫 you can reach me in this web
-- ⚡ Fun fact: still confused what i can say :D
+- ⚡ Fun fact: still confused what i can say to you :D
 - i hope you all can teach me all about software
 - 
 just i that i can say now
